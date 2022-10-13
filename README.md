@@ -1,1 +1,1 @@
--My name is Jared, and I hope I'm doung this correctly.
+-My name is Jared, and I hope I'm doing this correctly.
